@@ -1,1 +1,0 @@
-# southwest-urgent-care-demo
